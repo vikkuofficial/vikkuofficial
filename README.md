@@ -5,7 +5,7 @@
 - Facebook https://www.facebook.com/vikkuofc
 - Instagram https://instagram.com/vikkuofc
 - Telegram channel https://t.me/vikkuofficial
-- GitHub 
+- GitHub  https://github.com/vikkuofficial
 - website www.vikku.website
 - bio site https://bio.site/vikkuofc
 - 
